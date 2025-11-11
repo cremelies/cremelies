@@ -3,10 +3,11 @@
   
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-   ***___🌷 Hi there — I'm Cremelies!! ^w^___***
+   ***___🌷 Hi there — I'm Cremelies!!___***
 
 <h5 align="center">
-》18yo girl who really likes kpop Idols and RPGMAKER games! I also really love vtubers like Nimi Nightmare 👻
+》Someone who really likes kpop Idols and RPGMAKER games! I also really love vtubers like Nimi Nightmare 👻
+》You can find more about me in my other social links ^p^
 
  ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
 
@@ -22,7 +23,7 @@
 
  》 I hide + block freely, ok?
 
- 》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first '^-^
+ 》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first..
 
 
 <h5 align="center">
