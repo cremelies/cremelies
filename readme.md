@@ -20,9 +20,9 @@
 
  》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad.
 
- 》  Often off-tab or just by myself, you can always C+H! if I'm sitting with anyone just ask either of us!
+ 》 I’m usually off-tab and often only reply to whispers. C+H freely unless I’m with someone, or if my name says not to. ^-^
 
- 》 I hide + block freely, ok?
+ 》 I hide + block freely.
 
  》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first..
 
