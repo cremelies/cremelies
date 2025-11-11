@@ -20,7 +20,7 @@
 
  》  Often off-tab or just by myself, you can always C+H! if I'm sitting with anyone just ask either of us!
 
- 》 I hide and block freely! I do not interact with people who dislikes my friends in any way for no reason.
+ 》 I hide + block freely, ok?
 
  》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first '^-^
 
