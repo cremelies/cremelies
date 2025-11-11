@@ -6,7 +6,7 @@
    ***___🌷 Hi there — I'm Cremelies!! ^w^___***
 
 <h5 align="center">
-》 I'm a 18yo girl who really likes kpop Idols and RPGMAKER games! I also really love vtubers like Nimi Nightmare 👻
+》18yo girl who really likes kpop Idols and RPGMAKER games! I also really love vtubers like Nimi Nightmare 👻
 
  ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
 
