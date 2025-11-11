@@ -7,6 +7,7 @@
 
 <h5 align="center">
 》Someone who really likes kpop Idols and RPGMAKER games! I also really love vtubers like Nimi Nightmare 👻
+  
 》You can find more about me in my other social links ^p^
 
  ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
