@@ -28,6 +28,3 @@
 <h5 align="center">
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ifozeundnjpw5vn76knfemgwbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/a8565716-aba4-4a99-9747-899a273a7dc7" />
