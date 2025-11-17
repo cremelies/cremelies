@@ -3,12 +3,14 @@
   
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-   ***___🌷 Hi there — I'm Cremelies!!___***
+   ***___🌷 Hi there — I'm Cremelies!___***
 
 <h5 align="center">
-》Someone who really likes kpop Idols and RPGMAKER games! I also really love vtubers like Nimi Nightmare 👻
+》I really like Idols and RPGMAKER games & tend to love vtubers(hi holotown). While I may look sensitive and a bit "fragile" I assure you I can handle way more than anyone would ever be able to tell. 
   
-》You can find more about me in my other social links ^p^
+》You can find more about me in my other social links ^p^ 
+
+》I care A LOT... if we ever become friends, please be a little ready for how annoying i might be sometimes! "'w'
 
  ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
 
@@ -16,15 +18,15 @@
 
  ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
 
- 》 I'm a really introverted person and tend not to talk a lot, I often listen more than I speak and I prefer it that way!
+ 》 I'm a really introverted person and tend not to talk a lot, I often listen more than I speak and I prefer it that way. While I may be a little good with words, I do not know how to react very well.
 
- 》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad.
+ 》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad. Please be a little considerate with me.
 
  》 I’m usually off-tab and often only reply to whispers. C+H freely unless I’m with someone, or if my name says not to. ^-^
 
- 》 I hide + block freely.
+ 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable.
 
- 》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first..
+ 》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first... It's nothing personal, I just don't want to associate with some problematic people.
 
 
 <h5 align="center">
