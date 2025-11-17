@@ -7,8 +7,6 @@
 
 <h5 align="center">
 》I really like Idols and RPGMAKER games & tend to love vtubers(hi holotown). While I may look sensitive and a bit "fragile" I assure you I can handle way more than anyone would ever be able to tell. 
-  
-》You can find more about me in my other social links ^p^ 
 
 》I care A LOT... if we ever become friends, please be a little ready for how annoying i might be sometimes! "'w'
 
