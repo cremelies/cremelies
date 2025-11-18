@@ -11,7 +11,7 @@
 
 <h5 align="center">
   
-》I care A LOT... if we ever become friends, please be a little ready for how annoying i might be sometimes. Keep in mind that I'm really avoidant and have a STRONG conviction on what I think; I'm not one to change minds easily. If you're making me uncomfortable or making me feel unsafe it'll be VERY visible. 
+》I care A LOT... if we ever become friends, please be a little ready for how annoying i might be sometimes. Keep in mind that I'm not one to change minds easily. If you're making me uncomfortable or making me feel unsafe it'll be VERY visible. 
 
 (" 'w')
 
