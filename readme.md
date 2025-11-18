@@ -6,7 +6,7 @@
    ***___🌷 Hi there — I'm Cremelies!___***
 
 <h5 align="center">
-》I really like Idols and RPGMAKER games & tend to love vtubers(hi holotown). While I may look sensitive and a bit "fragile" I assure you I can handle way more than anyone would ever be able to tell. I also am really like Nanashi Mumei and Ceres Fauna; those are my favourites vtubers and will forever be my on-top. I may act like Mumei or Fauna at times, so please bear with me. ^w^
+》I really like Idols and RPGMAKER games & tend to love vtubers(hi holotown). While I may look sensitive and a bit "fragile" I assure you I can handle way more than anyone would ever be able to tell. I'm also really like Nanashi Mumei and Ceres Fauna; those are my favourites vtubers and will forever be my on-top. I may act like Mumei or Fauna at times, so please bear with me. ^w^
 
 
 <h5 align="center">
