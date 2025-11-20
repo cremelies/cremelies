@@ -7,6 +7,7 @@
 
 <h5 align="center">
 》I really like Idols and RPGMAKER games & tend to love vtubers(hi holotown). I'm a big fan of Sachi and Nimi Nightmare and may act like them. My interests are... pretty much anything, just ask ^p^
+  
 》Check links, ok? ok.
 
 <h5 align="center">
