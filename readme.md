@@ -29,7 +29,7 @@
 
  》 I’m usually off-tab and often only reply to whispers. C+H freely unless I’m with someone, or if my name says not to.
 
- 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I have clear boundaries so please respect them, I REALLY dislike ignorance and assumptions.
+ 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions.
 
  》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first.
 
