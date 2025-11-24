@@ -6,15 +6,15 @@
    ***___🔥 Hello, name's Cremelies.___***
 
 <h5 align="center">
-》I really like Idols and RPGMAKER games & tend to love vtubers(hi holotown). I'm a big fan of Sachi and Nimi Nightmare and may act like them. My interests are... pretty much anything, just ask ^p^
+》I really like Idols and RPGMAKER games! I'm also a big fan of vtubers and umamusume in general. I may act like Nimi Nightmare or Sachi sometimes.
+  
+  V V V V V V V V V V V
   
 》Check links, ok? ok.
 
 <h5 align="center">
   
-》I care A LOT... if we ever become friends, please be a little ready for how annoying i might be sometimes. Keep in mind that I'm not one to change minds easily. If you're making me uncomfortable or making me feel unsafe it'll be VERY visible. 
-
-(" 'w')
+》I care A LOT for my friends and family, so if we ever get along... you might want to be ready for how annoying I might be when it comes to health! '^w^
 
 <img width="1500" height="350" alt="image" src="https://github.com/user-attachments/assets/f0453467-c03e-4c9a-84e7-d08696e2f1d5" />
 
@@ -22,9 +22,9 @@
 
  》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad... while I don't mind as a joke, it still might make me feel a bit sour and down. I'd only ask to be a bit considerate, unless I'm really nonchalant atm... '^.^
 
- 》 I’m usually off-tab and often only reply to whispers.
+ 》 I’m usually off-tab and often only reply to whispers. I also do not engage in pointless arguments or drama that is dragged to me, so keep that in mind.
 
- 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions... so please keep that away from me.
+ 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions... so keep that away from me.
 
  》 I avoid by all meanings problematic fandoms, so don't take it in the wrong way if I'm wary at first.
 
