@@ -24,9 +24,9 @@
 
  》 I’m usually off-tab and often only reply to whispers. I also do not engage in pointless arguments or drama that is dragged to me, so keep that in mind.
 
- 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions... so keep that away from me.
+ 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions.
 
- 》 I avoid by all meanings problematic fandoms, so don't take it in the wrong way if I'm wary at first.
+ 》 I avoid by all meanings problematic fandoms, don't take it in the wrong way if I'm wary at first.
 
 
 <h5 align="center">
