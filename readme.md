@@ -1,6 +1,6 @@
 <h5 align="center">
-<img width="300" height="300" alt="literally me" src="https://github.com/user-attachments/assets/9aa91dcf-eeb1-4baa-b9e1-bd037b8cb7b1" />
-  
+<img width="720" height="240" alt="tumblr_7a57540a67a5ff43de4036e46f5a55ca_94f82858_1280" src="https://github.com/user-attachments/assets/bee5a69c-f70e-4a9f-9c5a-7ad69a4d9041" />
+
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
    ***___🌷 Hello — I'm Cremelies!___***
@@ -16,22 +16,17 @@
 
 (" 'w')
 
-
- ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
-
- <img width="350" height="350" alt="me and who.." src="https://github.com/user-attachments/assets/bd2ee0fc-450a-403c-9478-d83b6842d062" />
-
- ⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
+<img width="1500" height="350" alt="image" src="https://github.com/user-attachments/assets/f0453467-c03e-4c9a-84e7-d08696e2f1d5" />
 
  》 I'm a really introverted person and tend not to talk a lot, I often listen more than I speak and I prefer it that way. I'm really selective of those who I'm more verbal about.
 
  》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad... while I don't mind as a joke, it still might make me feel a bit sour and down. I'd only ask to be a bit considerate, unless I'm really nonchalant atm... '^.^
 
- 》 I’m usually off-tab and often only reply to whispers. C+H freely unless I’m with someone, or if my name says not to.
+ 》 I’m usually off-tab and often only reply to whispers.
 
- 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions.
+ 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions... so please keep that away from me.
 
- 》 I avoid by all meanings problematic fandoms, so please don't take it in the wrong way if I'm wary at first.
+ 》 I avoid by all meanings problematic fandoms, so don't take it in the wrong way if I'm wary at first.
 
 
 <h5 align="center">
