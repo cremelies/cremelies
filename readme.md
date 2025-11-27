@@ -6,7 +6,7 @@
    ***___🔥 Hello, name's Cremelies.___***
 
 <h5 align="center">
-》I really like Idols and RPGMAKER games! I'm also a big fan of vtubers and umamusume in general. I may act like Nimi Nightmare or Sachi sometimes.
+》I really like Idols and RPGMAKER games. I'm also a big fan of vtubers and umamusume in general, I tend to avoid big crowds and get anxious easily around certain people or topics.
   
   V V V V V V V V V V V
   
@@ -14,17 +14,17 @@
 
 <h5 align="center">
   
-》I care A LOT for my friends and family, so if we ever get along... you might want to be ready for how annoying I might be when it comes to health! '^w^
+》I care A LOT for my friends and family, so if we ever get along... you might want to be ready for how annoying I might be when it comes to health.
 
 <img width="1500" height="350" alt="image" src="https://github.com/user-attachments/assets/f0453467-c03e-4c9a-84e7-d08696e2f1d5" />
 
- 》 I'm a really introverted person and tend not to talk a lot, I often listen more than I speak and I prefer it that way. I'm really selective of those who I'm more verbal about.
+ 》 I'm a really introverted person and tend not to talk a lot, I often listen more than I speak and I prefer it that way. I used to be selective, now I'm just quiet overall.
 
- 》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad... while I don't mind as a joke, it still might make me feel a bit sour and down. I'd only ask to be a bit considerate, unless I'm really nonchalant atm... '^.^
+ 》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad... while I don't mind as a joke, it still might make me feel a bit sour and down. I'd only ask to be a bit considerate, unless I'm really nonchalant at the moment.
 
  》 I’m usually off-tab and often only reply to whispers. I also do not engage in pointless arguments or drama that is dragged to me, so keep that in mind.
 
- 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions.
+ 》 I hide + block freely, I do not make exceptions if anything/anyone makes me uncomfortable. I REALLY dislike ignorance and assumptions, it makes me snappy.
 
  》 I avoid by all meanings problematic fandoms, don't take it in the wrong way if I'm wary at first.
 
