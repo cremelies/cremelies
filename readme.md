@@ -14,7 +14,7 @@
 
 <h5 align="center">
   
-》I'm someone who cares a lot of those who are close to me and I might be a little annoying about it at first ^-^
+》I'm someone who cares a lot of those who are close to me and I might be a little annoying when it comes to health at first ^-^
 
 <img width="350" height="350" alt="image" src="https://64.media.tumblr.com/4812037474ebeaa6c78f8c15404174c9/7981641d86c47dc0-ee/s500x750/4a93b171f41e21c8fb4e9474ad1aaa20c3e9fba2.pnj" />
 
