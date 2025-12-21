@@ -1,12 +1,12 @@
 <h5 align="center">
-<img width="720" height="240" alt="tumblr_7a57540a67a5ff43de4036e46f5a55ca_94f82858_1280" src="https://github.com/user-attachments/assets/bee5a69c-f70e-4a9f-9c5a-7ad69a4d9041" />
+<img width="450" height="450" alt="tumblr_7a57540a67a5ff43de4036e46f5a55ca_94f82858_1280" src="https://static.wikia.nocookie.net/steamtradingcards/images/2/2d/LiEat_Artwork_1.jpg/revision/latest/scale-to-width-down/500?cb=20160501045743" />
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-   ***___🔥 Hello, name's Cremelies.___***
+   ***___🍃 Cremelies . . . my pleasure to meet you.___***
 
 <h5 align="center">
-》I really like Idols and RPGMAKER games. I'm also a big fan of vtubers and umamusume in general, I tend to avoid big crowds and get easily anxious around certain people or topics.
+》I love Indie RPGMaker games and horror-like, I'm also a big fan of Umamusume and VTubers in general. I don't bite, I'm just shy!
   
   V V V V V V V V V V V
   
@@ -14,19 +14,19 @@
 
 <h5 align="center">
   
-》I care A LOT for my friends and family, so if we ever get along... you might want to be ready for how annoying I might be when it comes to health.
+》I'm someone who cares a lot of those who are close to me and I might be a little annoying about it at first ^-^
 
-<img width="1500" height="350" alt="image" src="https://github.com/user-attachments/assets/f0453467-c03e-4c9a-84e7-d08696e2f1d5" />
+<img width="350" height="350" alt="image" src="https://64.media.tumblr.com/4812037474ebeaa6c78f8c15404174c9/7981641d86c47dc0-ee/s500x750/4a93b171f41e21c8fb4e9474ad1aaa20c3e9fba2.pnj" />
 
- 》 I'm a really introverted person and tend not to talk a lot, I'm a listener. I prefer it that way. ^-^
+ 》 I don’t talk very much. I’m better at listening. I think I prefer it that way too.
 
- 》 I don't like sarcastic or ironic comments, I'm really slow to understand things and it makes me feel bad... while I don't mind as a joke, it still might make me feel a bit sour and down.
+ 》 Sarcasm and irony are hard for me. I’m slow to catch on and don't really understand sometimes.
 
- 》 I’m usually off-tab and often only reply to whispers. I also do not engage in pointless arguments or drama that is dragged to me, so keep that in mind.
+ 》 I'm usually off-tab and don't check public chat... whispers are preffered! I do not engage in drama or pointless arguments, so please don't drag me into one.
 
- 》 I hide + block freely. I REALLY dislike ignorance and assumptions, it makes me snappy.
-
- 》 I avoid by all meanings problematic fandoms, don't take it in the wrong way if I'm wary at first.
+ 》 I hide + block freely, I dislike ignorance and rudeness.
+ 
+ 》 I tend to avoid a lot problematic fandoms, don't take it to the heart if I'm wary at first.. '^-^
 
 
 <h5 align="center">
