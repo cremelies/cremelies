@@ -11,6 +11,7 @@ $\color{#70FFF5}{\textsf{ 🐙 . . . 𝐂𝐫𝐞𝐦𝐞𝐥𝐢𝐞𝐬 . . . 
 
 ―୨୧⋆ ˚ 𝐈 𝐝𝐨𝐧'𝐭 𝐩𝐚𝐫𝐭𝐢𝐜𝐮𝐥𝐚𝐫𝐥𝐲 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐃𝐍𝐈, 𝐣𝐮𝐬𝐭 𝐭𝐡𝐞 𝐛𝐚𝐬𝐢𝐜. 𝐃𝐨𝐧'𝐭 𝐛𝐞 𝐰𝐞𝐢𝐫𝐝 𝐚𝐧𝐝 𝐰𝐞'𝐥𝐥 𝐛𝐞 𝐟𝐢𝐧𝐞 ^-^
 
+Check out this amazing person!! They're the one who gifted me most of the skins I use <3 [@al](github.com/@1tsme-al)
   <h5 align="center">
     . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
     
